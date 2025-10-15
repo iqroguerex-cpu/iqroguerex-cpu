@@ -32,7 +32,7 @@
 ---
 
 ## 🧠 My Philosophy  
-> “Don’t build for the trend. Build for the impact.”  
+> “No amount of money ever bought a second of time.”  
 
 ---
 
