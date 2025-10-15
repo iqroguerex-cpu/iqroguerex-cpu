@@ -1,4 +1,4 @@
-# 🌌 Chinmay Chatradamath
+# 🌌 IQROGUEREX
 
 ### 🚀 *Building AI-Powered Experiences That Matter*
 
