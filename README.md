@@ -38,7 +38,7 @@
 
 ## 🌐 Connect With Me  
 
-[![Instagram](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://instagram.com/chinmay.chatradamath)
+[![Instagram](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://instagram.com/stewietheabuser)
 
 ---
 
